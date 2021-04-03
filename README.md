@@ -45,5 +45,4 @@ Both my ide and anyone's idea are had respect , don't deny ,and, exchange ideas 
 
 [Zenn](https://zenn.dev/moyashi_eagle/books)
 
-[Twitter](https://twitter.com/night_moyashi)
 
